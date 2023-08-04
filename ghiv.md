@@ -1,6 +1,0 @@
----
-title: ghiv
----
-bhikgutdujvhygtièfiy 
-
-ftghjk 
